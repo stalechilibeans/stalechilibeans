@@ -1,6 +1,7 @@
 ## hello bros
 
-- i am figuring htis out help
+- i don't know what to put here
+- currently working on mario betah stuff
 
 <!--¡
 **stalechilibeans/stalechilibeans** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
