@@ -2,7 +2,6 @@
 
 - i don't know what to put here
 - currently working on mario 64 betah stuff (96flashbacks & showfloor)
-- [muh beytah discord](https://discord.gg/rjWEDCqW4c)
 
 <!--¡
 **stalechilibeans/stalechilibeans** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
