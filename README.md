@@ -1,4 +1,4 @@
-you got a problem with my smile?
+full-time sm64 betah archivist
 <!--¡
 **stalechilibeans/stalechilibeans** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
